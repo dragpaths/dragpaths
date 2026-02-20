@@ -1,16 +1,14 @@
-## Hi there 👋
+<img src="https://files.catbox.moe/ac24lm.png" align="left" width="200"><p align="center"> ${\textsf{\color{#873132}i would swim the paladin strait}}$ <br> <img src="https://files.catbox.moe/8f4qlv.png" height="40" width="240"/><p align="center"> ${\textsf{\color{#873132}clancy}}$ ㅤouㅤ<i> hex </i> <br> he ⊬ hym⠀⸝⠀18 <br> osdd-1b system ⟢ para holder <br> ${\textsf{\color{#873132}anti}}$ꕀharrassmentㅤ &ㅤ ${\textsf{\color{#873132}pro}}$ꕀship. <br> <img src="https://files.catbox.moe/8f4qlv.png" height="40" width="240"/> <br>
 
-<!--
-**dragpaths/dragpaths** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://files.catbox.moe/49akdv.png" align="right" width="250"> <p align="center">   ${\textsf{\color{#873132}without any floatation}}$ <br> <img src="https://files.catbox.moe/8f4qlv.png" height="40" width="240"/>
+<p align="center"> <details align="center">
+<summary> ⎯⎯ㅤ ${\textsf{\color{#fde61e}dni.}}$ ⟢ </summary> basic dni (pedos,racists,ect) <br> under 15 unless already friendsㅤ<br> dont flirt with me or my bf <br> </details> <p align="center"> </> 
 
-Here are some ideas to get you started:
+<div align="center">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31galk32w6ki3q23agleaubtcfwa&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=000000&bar_color_cover=false&mode=dark">
+  </a>
+</p>
