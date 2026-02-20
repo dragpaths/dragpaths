@@ -1,6 +1,6 @@
-<img src="https://files.catbox.moe/ac24lm.png" align="left" width="200"><p align="center"> ${\textsf{\color{#873132}i would swim the paladin strait}}$ <br> <img src="https://files.catbox.moe/8f4qlv.png" height="40" width="240"/><p align="center"> ${\textsf{\color{#873132}clancy}}$ ㅤouㅤ<i> hex </i> <br> he ⊬ hym⠀⸝⠀18 <br> osdd-1b system ⟢ para holder <br> ${\textsf{\color{#873132}anti}}$ꕀharrassmentㅤ &ㅤ ${\textsf{\color{#873132}pro}}$ꕀship. <br> <img src="https://files.catbox.moe/8f4qlv.png" height="40" width="240"/> <br>
+<img src="https://files.catbox.moe/ac24lm.png" align="left" width="200"><p align="center"> ${\textsf{\color{#873132}ᴀ ᴅʀᴀɢ ᴘᴀᴛʜ ᴇᴛᴄʜᴇᴅ ɪɴᴛø ᴛʜᴇ ꜱᴜʀꜰᴀᴄᴇ}}$ <br> <img src="https://files.catbox.moe/8f4qlv.png" height="40" width="240"/><p align="center"> ${\textsf{\color{#873132}clancy}}$ ㅤouㅤ<i> hex </i> <br> he ⊬ hym⠀⸝⠀18 <br> osdd-1b system ⟢ para holder <br> ${\textsf{\color{#873132}anti}}$ꕀharrassmentㅤ &ㅤ ${\textsf{\color{#873132}pro}}$ꕀship. <br> <img src="https://files.catbox.moe/8f4qlv.png" height="40" width="240"/> <br>
 
-<img src="https://files.catbox.moe/49akdv.png" align="right" width="250"> <p align="center">   ${\textsf{\color{#873132}without any floatation}}$ <br> <img src="https://files.catbox.moe/8f4qlv.png" height="40" width="240"/>
+<img src="https://files.catbox.moe/49akdv.png" align="right" width="250"> <p align="center">   ${\textsf{\color{#873132}ᴀꜱ ᴇᴠɪᴅᴇɴᴄᴇ ɪ ʟᴇꜰᴛ ᴛʜᴇʀᴇ øɴ ᴘᴜʀᴘøꜱᴇ}}$ <br> <img src="https://files.catbox.moe/8f4qlv.png" height="40" width="240"/>
 <p align="center"> <details align="center">
 <summary> ⎯⎯ㅤ ${\textsf{\color{#fde61e}dni.}}$ ⟢ </summary> basic dni (pedos,racists,ect) <br> under 15 unless already friendsㅤ<br> dont flirt with me or my bf <br> </details> <p align="center"> </> 
 
