@@ -2,7 +2,7 @@
 
 <img src="https://files.catbox.moe/49akdv.png" align="right" width="250"> <p align="center">   ${\textsf{\color{#873132}ᴀꜱ ᴇᴠɪᴅᴇɴᴄᴇ ɪ ʟᴇꜰᴛ ᴛʜᴇʀᴇ øɴ ᴘᴜʀᴘøꜱᴇ}}$ <br> <img src="https://files.catbox.moe/8f4qlv.png" height="40" width="240"/>
 <p align="center"> <details align="center">
-<summary> ⎯⎯ㅤ ${\textsf{\color{#fde61e}dni.}}$ ⟢ </summary> basic dni (pedos,racists,ect) <br> under 15 unless already friends <br> </details> <p align="center"> </> 
+<summary> ⎯⎯ㅤ ${\textsf{\color{#fde61e}dni and psa}}$ ⟢ </summary> basic dni (pedos,racists,ect) <br> under 15 unless already friends <br> I AM EX PROSHIP AND DARKSHIP. I NO LONGER PROSHIP AND DARKSHIP. I AM ONLY ANTI HARASSMENT. <br> </details> <p align="center"> </> 
 
 <div align="center">
 
